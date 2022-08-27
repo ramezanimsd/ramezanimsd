@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **info at masoudramezani.com**
 
-- 📄 Know about my experiences [linkedIn.com/masoudramezani](linkedIn.com/masoudramezani)
+- 📄 Know about my experiences [linkedin.com/masoudramezani](linkedin.com/masoudramezani)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
