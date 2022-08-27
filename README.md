@@ -5,7 +5,7 @@
 
 - 📝 I regularly write articles on [masoudramezani.com/blog](masoudramezani.com/blog)
 
-- 📫 How to reach me **info@masoudramezani.com**
+- 📫 How to reach me **info at masoudramezani.com**
 
 - 📄 Know about my experiences [linkedIn.com/masoudramezani](linkedIn.com/masoudramezani)
 
